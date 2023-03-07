@@ -2,3 +2,7 @@
 
  Yo Royel Murga, tengo el agrado de presentar mi tesis de lo que enseño.
  Además quisiera que sepan que esto es full teoría y practica
+ 
+ ## Cualidades al terminar el curso
+ 
+ 
